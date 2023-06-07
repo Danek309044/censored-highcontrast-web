@@ -1,2 +1,3 @@
-# hewol.hc.github.io
-High Contrast version of Hewol Website
+# /Censored/
+High Contrast version of /Censored/ Website
+Made by Danek309044
